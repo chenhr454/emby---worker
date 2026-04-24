@@ -1,4 +1,4 @@
-📢 TG频道：https://t.me/embyfdgltz 💬 TG交流群：https://t.me/embyfdgljl
+📢 TG频道：https://t.me/embyfdgltzq 💬 TG交流群：https://t.me/embyfdgljlq
 
 github暂停更新，最新workers请前往TG频道或TG交流群获取。
 ## 更新日志
